@@ -1,1 +1,0 @@
-# Erjan_Sartov_zadanie
